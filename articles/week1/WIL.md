@@ -1,0 +1,1 @@
+https://velog.io/@jjlee-creater/AI-%EB%AF%B8%EC%85%98-%EC%BD%94%EC%8A%A4-Week1
